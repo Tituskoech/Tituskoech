@@ -1,4 +1,4 @@
-- 👋 Hi, i am tituskoech I.C.T TECHNICIAN
+- 👋 Hi, i am Tee Tech I.C.T TECHNICIAN
 - 👀 I’m interested in ...cctv/online trading
 - 🌱 I’m currently learning ...I.C.T and ONLINE Trading
 - 💞️ I’m looking to collaborate on ...networking
