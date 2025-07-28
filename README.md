@@ -6,7 +6,5 @@
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ...keep your circle small the blunt comes back faster
 
-facebook i.teetech
-I.Tee Tech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->https://www.facebook.com/facebook.djtee
+facebook profile Kipkosgei tito
+FACEBOOK PAGELINK..https://www.facebook.com/share/1GGBuQpjnn/
